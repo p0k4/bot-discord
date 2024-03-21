@@ -1,1 +1,1 @@
-Hello, I am okina and it was created by p0k4 !!!!
+Hello, I am okina and it was created by p0k4 !
